@@ -12,7 +12,7 @@ Dynamic and detail-oriented Software Developer with a strong foundation in full-
 
 - **Email:** [tusharanshu396@gmail.com](mailto:tusharanshu396@gmail.com)
 - **Phone:** [+91 8591609066](tel:+918591609066)
-- **GitHub:** [@Tusharanshu](https://github.com/Tusharanshu)
+- **GitHub:** [@tusharanshu396](https://github.com/tusharanshu396)
 
 ---
 
